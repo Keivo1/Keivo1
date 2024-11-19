@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Keivo
+- 👀 I’m interested in softwares and how they work
+- 🌱 I’m currently learning Frontend web development
+- 💞️ I’m looking to collaborate on anthing tech related
+- 📫 How to reach me via email: victorikpe5@gmail.com or instagram @keivo.oi
+- 😄 Pronouns: HE/HIM/HIS
+- ⚡ Fun fact: I'm friendly
